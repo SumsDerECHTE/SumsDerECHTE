@@ -1,0 +1,3 @@
+- Moin Jungs und Mädels und was es noch so gibt, ich bin Justin!
+- Ich kann eigentlich gar nichts... vielleicht kann ich so in 10 Jahren die Basics von HTML haha
+- Bockt hier auf jeden fall haha
